@@ -11,7 +11,7 @@ Our offline activities will resume in the fall of 2022 but will be operated on a
 ## Russia's invasion of Ukraine
 As soon as we heard this news, we delivered donations to various aid organizations supporting Ukraine. We don't think that the means of owning power for any reason should be to take someone's life.
 
-We hear every day about Russia, Belarus, and the unofficial non-russian groups that support them. They are relieving their desire for blood with an invasion of Ukraine.
+We hear every day about Russia, Belarus, and the unofficial russia-associated groups that support them. They are relieving their desire for blood with an invasion of Ukraine.
 
 I'm sorry that all we can do is donate a small amount and purchase the UA domain. But we pray for peace in Ukraine.
 
