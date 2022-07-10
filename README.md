@@ -20,5 +20,13 @@ We know about Protestware and we've already looked at a few of them. But we thin
 
 In fact, analyzing Protestware made it easy to find violent symbols such as the Hakenkreuz and Rising-sun flag in internal or related resources. Anyone who creates Protestware can be considered to agree with Hakenkreuz and Rising-sun flag. This does not help both Russia and Ukraine.
 
+## What do you think about the gun accident in Japan in 2022?
+Since we are a team based in South Korea, we are well aware of the historical crimes known as Japan's "Unit 731" and "Comfort woman" during World War II, and we are continuously asking Japan to apologize.
+
+However, apart from Japan's past historical issues, we are well aware of the efforts and achievements of former Japanese Prime Minister Shinzo Abe to strengthen the alliance between the United States, the Republic of Korea, and Japan.
+
+He contributed a lot to modern East Asia and world peace. We think his death is a big loss in solving many problems such as COVID-19 and the war in Ukraine that humanity is currently experiencing.
+
+
 ## Contact us
   * catswords@protonmail.com
