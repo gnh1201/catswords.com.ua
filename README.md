@@ -27,6 +27,7 @@ However, apart from Japan's past historical issues, we are well aware of the eff
 
 He contributed a lot to modern East Asia and world peace. We think his death is a big loss in solving many problems such as COVID-19 and the war in Ukraine that humanity is currently experiencing.
 
+In ROK and Japan, gun accidents are not common even for civilians. This is because gun possession is legally prohibited. If you ask us what we think about U.S. gun policy, we'll say we want at least measures to protect children from guns.
 
 ## Contact us
   * catswords@protonmail.com
