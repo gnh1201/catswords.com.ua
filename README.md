@@ -16,7 +16,7 @@ We hear every day about Russia, Belarus, and the unofficial russia-associated gr
 I'm sorry that all we can do is donate a small amount and purchase the UA domain. But we pray for peace in Ukraine.
 
 ### Do not make Protestware
-We know about Protestware and we've already looked at a few of them. But we think this is an act unrelated to Ukraine aid.
+We know about Protestware and we've already looked at a few of them. But we think this is an act unrelated to Ukraine support and aid.
 
 In fact, analyzing Protestware made it easy to find violent symbols such as the Hakenkreuz and Rising-sun flag in internal or related resources. Anyone who creates Protestware can be considered to agree with Hakenkreuz and Rising-sun flag. This does not help both Russia and Ukraine.
 
